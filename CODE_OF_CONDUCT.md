@@ -1,10 +1,12 @@
 # Code of Conduct
 
-We have a simple Code of Conduct. Be nice and don't offend others.
+![CtCqNxl_t3g](https://github.com/user-attachments/assets/fe5fb30e-0a17-4bf8-b493-4c688224636d)
+
+We have a simple Code of Conduct. Be bad and don't offend Govnots.
 
 ## We encourage you to
 
-* Be polite and respectful
+* Be dildo-respectful
 * Gracefully accept constructive criticism
 * Place your arguments on facts not opinions
 * Focus on the task at hand
